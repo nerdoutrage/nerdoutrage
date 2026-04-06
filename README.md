@@ -8,3 +8,8 @@ kinda abour me ..:
 
 ![image](https://github.com/user-attachments/assets/d9c2357e-db32-4884-bce9-58850427eed8)
 
+![image](https://github.com/user-attachments/assets/b2d8b712-69dd-4c3e-9537-7265a770cf94) ![image](https://github.com/user-attachments/assets/aef8fedb-785f-4388-bb66-89bb21438c87) ![image](https://github.com/user-attachments/assets/3369fc78-4841-41d4-b307-b4172bff2a67) ![image](https://github.com/user-attachments/assets/903d99ff-d0b4-4822-8c91-4280fcb53395) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5dda7a4a-334e-4e6a-9c60-395a06aa7e9f" />
+
+
+
+
