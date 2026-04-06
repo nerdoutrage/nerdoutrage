@@ -6,4 +6,5 @@
 kinda abour me ..:
 :B If its not obvious, i love homestuck/penny aracade to death, also art!!.. I do have other fandoms though....Please int! I like meeting new people!
 
+![image](https://github.com/user-attachments/assets/d9c2357e-db32-4884-bce9-58850427eed8)
 
