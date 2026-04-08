@@ -7,7 +7,7 @@ kinda abour me ..:
 :B If its not obvious, i love homestuck/penny aracade to death, also art!!.. I do have other fandoms though....Please int! I like meeting new people!
 
 
-I like joking around and being weird ,,, 🍪
+I like joking around and being weird ,,, 🍪 , My biggest inspos are old 2000's media and webcomics, like JTHM, Penny Arcade, Homestuck, etc. I love the old internef it makes me very happy.
 
 ![image](https://github.com/user-attachments/assets/d9c2357e-db32-4884-bce9-58850427eed8)
 
